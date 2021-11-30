@@ -7,3 +7,8 @@
 
 在一个动画资源重灾区看动画属实不易>_<
 
+
+
+
+
+\## Stargazers over time [![Stargazers over time](https://starchart.cc/PCKxin/Animation-Torrent-Library.svg)](https://starchart.cc/PCKxin/Animation-Torrent-Library) 
