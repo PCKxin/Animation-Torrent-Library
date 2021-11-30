@@ -11,6 +11,6 @@
 
 
 
-Stargazers over time
+### Stargazers over time
 
  [![Stargazers over time](https://starchart.cc/PCKxin/Animation-Torrent-Library.svg)](https://starchart.cc/PCKxin/Animation-Torrent-Library) 
