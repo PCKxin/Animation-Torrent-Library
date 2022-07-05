@@ -7,7 +7,7 @@
 
 ![](https://cdn.jsdelivr.net/gh/PCKxin/ID-0202@master/img/emoji/01.jpg)
 
-### 如果你有好的动画资源请联系我的邮箱：yukimoto-nagisa@outlook.com
+### 如果你有好的动画资源请联系我的邮箱：ukimoto-nagisa@outlook.com
 
 
 
